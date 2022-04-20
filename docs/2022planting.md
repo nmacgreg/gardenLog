@@ -26,3 +26,4 @@
 # Tue Apr 19th, 2022
 
 * Two pea plants broke the surface today, 6 days after planting
+* And late in the day, one broccoli germinated, too!
