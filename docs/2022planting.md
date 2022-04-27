@@ -11,10 +11,10 @@
     * in the blue & white PC container -- just 3 seeds
 * [Burpee's Early Pick VF Hybrid Tomatoes](https://www.burpee.com/tomato-burpees-early-pick-vf-hybrid-prod001174.html)
     * 62 days season
-    * Recommended 6-8 weeks start ahead, before planting outdoors
+    * Recommended 6-8 weeks start ahead, before planting outdoors (Wow!)
     * In the small ceramic pot - I think I put 6 around the edge
 * [McKenzie Broccoli Green Sprouting](https://mckenzieseeds.com/pages/search-results-page?q=139781)
-    * 75-80 days season
+    * 75-80 days season, the longest
     * Sow in a sunny location
  
 # Monday Apr 18th, 2022
@@ -27,3 +27,15 @@
 
 * Two pea plants broke the surface today, 6 days after planting
 * And late in the day, one broccoli germinated, too!
+
+# Tue Apr 26, 2022
+
+* Peas:
+    * Only 2-of-3 germinated
+    * They're 10cm tall & very leaved-out and have started extending suckers, ready for support!
+* Tomatoes, 13 days after planting
+    * Only 3-of-6 have germinated, one came up today
+    * Their leaves are stuck together on the seed pod, it appears, making a little oval.  Should I snip it?
+    * [This vid](https://www.youtube.com/watch?v=6uSoeN3qFcU) says you can sprout them in as little as 6 days, need a "propagator" (heated bed) & greenhouse cover, but that takes daily attention too, eg start them humid, but ventilate when they sprout to harden them somewhat.
+* Broccoli: 
+    * Just two plants germinated - I think that's all I planted (?)
