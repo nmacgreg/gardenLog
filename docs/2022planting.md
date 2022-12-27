@@ -39,3 +39,38 @@
     * [This vid](https://www.youtube.com/watch?v=6uSoeN3qFcU) says you can sprout them in as little as 6 days, need a "propagator" (heated bed) & greenhouse cover, but that takes daily attention too, eg start them humid, but ventilate when they sprout to harden them somewhat.
 * Broccoli: 
     * Just two plants germinated - I think that's all I planted (?)
+
+# In the new Square Foot garden: 9 plants
+
+* I bought one tomato plant from Maxwell's school fund-raiser.  It's a cherry variety?  I used a tomato wire-support round, only for this one.
+* 2 broccoli, see above
+* 2 peas, see above
+* 3 tomatoes, VF Hybrids
+* One thyme, started in the Click-n-Grow
+* What day did I plant?  I think it was the May 24 long weekend...
+* There was a hailstorm; I covered with a tarp!
+
+# Mid August report
+
+* One broccoli just died, probably damaged by the wind
+* The other broccoli bolted.  The internet says this is caused by too much heat. Soil temperature is key. The leaves were heavily eaten by butterflies. BUY REMAY  ROW CLOTH if you really want to try again!
+* The peas died early, which was surprising. Did my makeshift rusty wire trellis contribute to their demise?
+* The tomatoes are all doing wonderfully!
+
+# Wed Aug 31, 2022
+
+* I picked maybe 50% of the VF Hybrid tomatoes, anything with a blush or a split, not pasty-white/green
+    * stored in a paper bag
+    * and Regan ate the first one
+    * Pick them before they split - they're ready!
+* A lot of the cherry tomatoes are filling out nicely, only a few ready to pick
+
+## Advice for next year: 
+
+* Start your seedlings 2 weeks earlier!
+* The hybrid tomato plants were hip-high and massive! 
+    * Branches the size of my finger, and were too weighed down with fruit to stand up themselves -- these need support!
+    * This variety is too big for square-foot gardening, but might do well in a (big) pot
+    * The tomatoes are huge - good for sauce, maybe?  Too big for a breakfast, 3x Roma that work so well.
+* Carrots would work well, no?
+* Probably this is not the best location for broccoli!  It's too hot!
